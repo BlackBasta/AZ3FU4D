@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AZ3FU4D
+- 👋 Hi, I’m @BlackBasta
 - 👀 I’m interested in CRAZY THINGS
 - 🌱 I’m currently learning SOMETHING THAT NOT EVERYONE DARES TO
 - 💞️ I’m looking to collaborate on NOTHING
